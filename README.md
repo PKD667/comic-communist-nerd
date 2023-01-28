@@ -1,1 +1,1 @@
-# comic-communist-ned
+# comic-communist-nerd
